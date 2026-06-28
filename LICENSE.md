@@ -1,4 +1,4 @@
-# 
+# Turbo Foxit PDF Editor preajustes para Mac OS | Avanzado Foxit PDF Editor preajustes para PC Windows. Con soporte multi-dispositivo y división de PDF — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
